@@ -1,5 +1,8 @@
-# UI-Lotus-Inc
-UI Design
+# UI-Design
+
+
+Lotus Inc.
 
 A Premium Design, could be used for almost any background.
-Download and Enjoy!
+It represents the spiral of life.
+Download and Enjoy.
