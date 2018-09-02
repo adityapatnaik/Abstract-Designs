@@ -15,3 +15,7 @@
 ![bookoflifeadv](https://user-images.githubusercontent.com/25498926/44958570-94bb5a80-aeff-11e8-92ec-38e354470abc.jpg)
 
 >An abstract art that conveys the reality of life.
+
+*If you like my work,please go ahead and put your valuable suggestions.*
+
+"After all,In learning you will teach,and in teaching you will learn" 
